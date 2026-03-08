@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @21MH1A0577
 - 👀 I’m interested in ...Creating websites
-- 🌱 I’m currently learning ...4th BTech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...mail-bavisettivanithadevi@gmail.com
 
